@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **<krishnanpandya0001@gmail.com>**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/shubham-sareliya/](https://www.linkedin.com/in/krishnanpandya/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/krishnan-pandya/](https://www.linkedin.com/in/krishnanpandya/)
 
 - ⚡ Fun fact **I like to play FPS PC games** 
 
